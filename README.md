@@ -19,7 +19,7 @@ Owner :
 
 Admin :
 
-**Youtube** [TheFROOHGaming](https://m.youtube.com/channel/UCt0Dx0Rp5uejbMzXdLNIo7Q?sub_confirmation=1) 
+**Youtube** [TheFROOHGaming](https://m.youtube.com/channel/UCt0Dx0Rp5uejbMzXdLNIo7Q?sub_confirmation=1) ,
 **Discord Server** [TheFROOHLovers](bit.ly/ServerTFG)
 
 
