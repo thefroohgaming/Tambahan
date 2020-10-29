@@ -25,3 +25,7 @@ Admin :
 
 
 **Youtube** [Fahri wm](https://m.youtube.com/channel/UChGND_pmE89PO2MIGfPAkJA?sub_confirmation=1)
+
+# Info
+
+Copy Link [ini](bit.ly/ServerFR) untuk Menginvite Siapa saja.
